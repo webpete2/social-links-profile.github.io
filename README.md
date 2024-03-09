@@ -1,3 +1,3 @@
-https://webpete2.github.io/
+Live link: https://webpete2.github.io/social-links-profile.github.io/
 
-- my twist cus why not
+My own twist cus why not
